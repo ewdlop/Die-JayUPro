@@ -28,3 +28,14 @@ no he said he do it in anytime regardless i said so or not.
 # Ray
 
 Do you want to go brothel with me?
+
+
+# Pretend to be nice. They going to try harder.
+
+# Frame Chinese again(Same old trick). Really strem American data to Chinese Cloud?
+
+# what kind of shitt yname is 治安 張
+
+THe person is like 張安治
+
+[https://people.ucas.ac.cn/~0072836]
