@@ -11,3 +11,8 @@ noooo he aint scare of me
 nooo he isnt scewed up
 
 no he is Lorenzo 
+
+no he said he didnt do it becuase i didnt say so.
+
+no he said he do it in anytime regardless i said so or not.
+
