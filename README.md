@@ -45,3 +45,6 @@ NO. Again when I was working at the same god damn place.
 
 Dude think he is Michale Jackon? He is trying to frame Jake.
 
+# Do you guys have issue let go of people that pass away?
+
+
