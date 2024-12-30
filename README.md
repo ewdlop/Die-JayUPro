@@ -67,3 +67,5 @@ Too abstract. How about crunch resistance in parallel?
 They claim they are CIA working materials and helping out FBI. 
 
 # I suggest keeping that to yourself.
+
+I wished otherwise is a sentence speaking in the present tense.
