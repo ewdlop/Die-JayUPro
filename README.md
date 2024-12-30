@@ -39,3 +39,9 @@ Do you want to go brothel with me?
 THe person is like 張安治
 
 [https://people.ucas.ac.cn/~0072836]
+
+# He was the one that swipe my debit card online to buy a bunch of skincare makeup in Sen? LOL 
+NO. Again when I was working at the same god damn place.
+
+Dude think he is Michale Jackon? He is trying to frame Jake.
+
