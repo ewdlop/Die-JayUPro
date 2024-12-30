@@ -53,3 +53,7 @@ Dude , do youthink he is Michale Jackon? He is trying to frame Jake.
 # http://www.youzigame.com/apkrj/4902.html
 
 # 百度一下 JUPro
+
+# They are sayingn they are not selling product on TicTik platform
+
+ 
