@@ -62,5 +62,8 @@ Too abstract. How about crunch resistance in parallel?
 (I think the most funny thing is the electronics circuits are internally parallel and turns off the parallelism somehow.)
 
 
+# They arent institing it is a child labor.
+
+
 
 
