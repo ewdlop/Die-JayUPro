@@ -30,21 +30,24 @@ no he said he do it in anytime regardless i said so or not.
 Do you want to go brothel with me?
 
 
-# Pretend to be nice. They going to try harder.
+# Pretend to be nice. They are going to try harder.
 
-# Frame Chinese again(Same old trick). Really strem American data to Chinese Cloud?
+# Frame Chinese again(Same old trick). Really stream American data to Chinese Cloud?
 
-# what kind of shitt yname is 治安 張
+# What kind of shitt name is 治安 張
 
-THe person is like 張安治
+THe person is like 張安治. JUPRo(Halthfit) = Fitbit spins off = hackers trying to use these IOT to track people. On Apple store right now 12/30/2024. 
+
+Ah. Again, they are trying to find a Chinese looking person living in America to make it like they are Chinese.
+
 
 [https://people.ucas.ac.cn/~0072836]
 
 # He was the one that swipe my debit card online to buy a bunch of skincare makeup in Sen? LOL 
-NO. Again when I was working at the same god damn place.
+NO. Again when I was working at the same goddamn place.
 
-Dude think he is Michale Jackon? He is trying to frame Jake.
+Dude , do youthink he is Michale Jackon? He is trying to frame Jake.
 
-# Do you guys have issue let go of people that pass away?
+# Do you guys have an issue let go of people that pass away?
 
 
