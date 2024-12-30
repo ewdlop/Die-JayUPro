@@ -16,3 +16,7 @@ no he said he didnt do it becuase i didnt say so.
 
 no he said he do it in anytime regardless i said so or not.
 
+
+# Sunny
+
+[1] + [2] + [3] + ... = -1/ [12] 
