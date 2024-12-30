@@ -32,21 +32,21 @@ Do you want to go brothel with me?
 
 # Pretend to be nice. They are going to try harder.
 
-# Frame Chinese again(Same old trick). Really stream American data to Chinese Cloud?
+# Frame Chinese again(Same old trick). Really stream American data to the Chinese Cloud?
 
-# What kind of shitt name is 治安 張
+# What kind of shitty name is 治安 張
 
 THe person is like 張安治. JUPRo(Halthfit) = Fitbit spins off = hackers trying to use these IOT to track people. On Apple store right now 12/30/2024. 
 
-Ah. Again, they are trying to find a Chinese looking person living in America to make it like they are Chinese.
+Ah. Again, they are trying to find a Chinese-looking person living in America to make it like they are Chinese.
 
 
 [https://people.ucas.ac.cn/~0072836]
 
-# He was the one that swipe my debit card online to buy a bunch of skincare makeup in Sen? LOL 
+# He was the one that swiped my debit card online to buy a bunch of skincare makeup in Sen? LOL 
 NO. Again when I was working at the same goddamn place.
 
-Dude , do youthink he is Michale Jackon? He is trying to frame Jake.
+Dude, do you think he is Michale Jackon? He is trying to frame Jake.
 
 # Do you guys have an issue let go of people that pass away?
 
@@ -59,7 +59,7 @@ Dude , do youthink he is Michale Jackon? He is trying to frame Jake.
  # They always say the are better and look at all the devices with crappy driver. oh the more drivers the better. 
 Did you not know how to solve 分工問題, you get use the partial harmonic sum to find the rate. 
 Too abstract. How about crunch resistance in parallel? 
-(I think the most funny thing is the electronics cirucit are internall parallel and turn off the parallelism some how.)
+(I think the most funny thing is the electronics circuits are internally parallel and turns off the parallelism somehow.)
 
 
 
