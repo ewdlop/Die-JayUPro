@@ -56,4 +56,11 @@ Dude , do youthink he is Michale Jackon? He is trying to frame Jake.
 
 # They are sayingn they are not selling product on TicTik platform
 
- # They always say the are better and look at all the devices with crappy driver.
+ # They always say the are better and look at all the devices with crappy driver. oh the more drivers the better. 
+Did you not know how to solve 分工問題, you get use the partial harmonic sum to find the rate. 
+Too abstract. How about crunch resistance in parallel? 
+(I think the most funny thing is the electronics cirucit are internall parallel and turn off the parallelism some how.)
+
+
+
+
