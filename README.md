@@ -56,4 +56,4 @@ Dude , do youthink he is Michale Jackon? He is trying to frame Jake.
 
 # They are sayingn they are not selling product on TicTik platform
 
- 
+ # They always say the are better and look at all the devices with crappy driver.
